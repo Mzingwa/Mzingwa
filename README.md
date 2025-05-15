@@ -2,7 +2,7 @@
 - 👀 I’m interested in Software Development Projects
 - 🌱 I’m currently learning Bachelor Of Science In Computer Science 
 - 💞️ I’m looking to collaborate on all matters about coding and programming 
-- 📫 You can reach me at UDOM-CIVE or contact +255 714 103 334
+- 📫 You can reach me at UDOM-CIVE or contact +255 714 103 395
 - 😄 Pronouns: Ch13fd0m 
 - ⚡ Fun fact: Doctor Of Mathematics 
 
